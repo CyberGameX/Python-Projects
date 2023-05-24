@@ -1,1 +1,1 @@
-# Here are all my projects freel free and enjoy it :)
+# Here are all my projects feel free and enjoy it :)
